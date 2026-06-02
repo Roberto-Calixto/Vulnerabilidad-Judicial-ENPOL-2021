@@ -1,4 +1,4 @@
-﻿# **Vulnerabilidad en el Proceso Judicial de Personas Sentenciadas en México y su relevancia práctica para la programa de formación para la reinserción social: Un Análisis de Estructura Interna mediante Modelamiento Confirmatorio Categórico y TRI Multidimensional basado en la ENPOL 2021**
+﻿# **Vulnerabilidad en el Proceso Judicial de Personas Sentenciadas en México y su relevancia práctica de un programa de formación para la reinserción social: Un Análisis de Estructura Interna mediante Modelamiento Confirmatorio Categórico y TRI Multidimensional basado en la ENPOL 2021**
 
 Baeza Ruffino, Yulia Isabel
 
